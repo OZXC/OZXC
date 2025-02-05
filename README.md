@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @OZXC
+- 👋 Hi, I’m Jeremy Ildefonso
 - 👀 I’m currently bringing my passion that die once, I want to be addicted to problem solving again
 - 🌱 I’m currently refreshing my knowledge to Programming, What language do I use or platforms
 - 💞️ if you want to teach me some of your knowledge you are much appreciated.
